@@ -1,4 +1,4 @@
-## Hello, Luis Here:wave:
+# Hello, Luis Here:wave:
 
 ### A Computer:computer: Science:microscope: Student:books:
 
@@ -8,5 +8,8 @@ Hobbies are just playing games(:computer: > 📱) and sleep 💤
 
 Math💯 is my main subject while communication🗣️ is the last.
 
-## Contact Me on my
+### Current Projects:
+- none
+
+## Contact me on my
 - [School Email](luisemil.trabado@wvsu.edu.ph)
