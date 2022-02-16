@@ -6,7 +6,7 @@ Currently learning about **COMPUTERS!**... and sience.
 
 Hobbies are just playing games(:computer: > 📱) and sleep 💤 
 
-Math💯 is my main subjectw while communication🗣️ is the last.
+Math💯 is my main subject while communication🗣️ is the last.
 
 ## Contact Me on my
 - [School Email](luisemil.trabado@wvsu.edu.ph)
