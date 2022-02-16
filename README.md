@@ -12,4 +12,4 @@ Math💯 is my main subject while communication🗣️ is the last.
 - none
 
 ## Contact me on my
-- [School Email](luisemil.trabado@wvsu.edu.ph)
+- School Email: luisemil.trabado@wvsu.edu.ph
