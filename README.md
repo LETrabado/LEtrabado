@@ -1,6 +1,6 @@
 # Hello, Luis Here:wave:
 
-### A Computer:computer: Science:microscope: Student:books:
+### A Computer :computer: Science :microscope: Student :books:
 
 Currently learning about **COMPUTERS!**... and sience.
 
