@@ -11,5 +11,5 @@ Math💯 is my main subject while communication🗣️ is the last.
 ### Current Projects:
 - none
 
-## Contact me on my
+## Don't Contact me on my
 - School Email: luisemil.trabado@wvsu.edu.ph
